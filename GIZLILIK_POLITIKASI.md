@@ -44,4 +44,4 @@ Bu gizlilik politikası güncellenebilir. Herhangi bir değişiklik olması duru
 
 Gizlilik politikamızla ilgili herhangi bir sorunuz olursa, lütfen bizimle iletişime geçin:
 
-E-posta: destek@kelimeinuriye.com
+E-posta: ahmetsaidbay@hotmail.com
